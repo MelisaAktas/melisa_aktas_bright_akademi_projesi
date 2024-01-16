@@ -1,1 +1,0 @@
-# melisa_aktas_bright_akademi_projesi
